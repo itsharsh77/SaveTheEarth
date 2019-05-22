@@ -21,5 +21,3 @@ Tony Stark was based off of millionaire industrialist Howard Hughes.
 Stark has a piece of shrapnel near his heart. His magnetic chest plate keeps the shrapnel from reaching his heart and killing him. He must recharge the chest plate every day or die.
 He also built specialized suits for other environments like deep sea diving and space travel.
 He graduated from MIT with multiple degrees when he was 21 years old.
-He is friends with Captain America.
-Robert Downey Jr. played Iron Man in the movie version.
